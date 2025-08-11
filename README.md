@@ -26,7 +26,7 @@ Nun freue ich mich darauf, mein theoretisches Wissen praxisnah anzuwenden.
 ---
 
 ## 🤝 Kontakt  
-- 📧 **E-Mail:** BioFrontier@proton.me  
+- 📧 **E-Mail:** mohammadali.hejrankeshrad.2003@gmail.com  
 - 🌐 **LinkedIn:** [linkedin.com/in/mohammadali-rad](https://linkedin.com/in/mohammadali-rad)  
 
 ---
